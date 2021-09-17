@@ -1,8 +1,6 @@
 # Annie Leal
 
-![An image of a woman exploring a river with her dog](Annie_Penny_Yadkin.jpg)
-
-A photo of myself with my service dog and spirit animal, Penny, while watching fish on the Yadkin River during our morning walk.
+![An image of Annie Leal](https://eesc.columbia.edu/sites/default/files/styles/cu_crop/public/content/pics/grad%20students%20profiles/IMG_9147%20-%20Annie%20Louise%20Leal.jpg?itok=kQKsPffy)
 
 ## Education
 
